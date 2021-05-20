@@ -2,5 +2,11 @@
 
 ![img](https://i1.wp.com/littlenivi.com/wp-content/uploads/2018/12/44-Motivational-Quotes-for-Work-Success-Life-1.jpg?resize=735%2C1001&ssl=1)
 
+# “this is what Ethar did on her computer  when working on the first feature”
+
+![image](https://helpx.adobe.com/content/dam/help/en/photoshop/using/convert-color-image-black-white/jcr_content/main-pars/before_and_after/image-before/Landscape-Color.jpg)
+
+
 
 # “This is what Omar & Qassem did on Omar's computer when working on the first feature”
+
