@@ -6,3 +6,7 @@
 
 ![image](https://helpx.adobe.com/content/dam/help/en/photoshop/using/convert-color-image-black-white/jcr_content/main-pars/before_and_after/image-before/Landscape-Color.jpg)
 
+
+
+# “This is what Omar & Qassem did on Omar's computer when working on the first feature”
+
